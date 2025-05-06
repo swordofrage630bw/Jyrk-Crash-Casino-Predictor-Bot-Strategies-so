@@ -1,0 +1,1 @@
+# Jyrk-Crash-Casino-Predictor-Bot-Strategies-so
